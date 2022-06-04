@@ -2,7 +2,7 @@
 *Effective: March 28, 2022
 Last Updated: February 25, 2022
 Who we are
-Age requirements and responsibility of parents and guardians*\
+Age requirements and responsibility of parents and guardians*
 
 ## Contacting each other
 Welcome! Discord is your place to talk and hang out. We’re happy you’re here.
